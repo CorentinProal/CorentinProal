@@ -1,6 +1,6 @@
 👋 Salut à tous !
 
-Je suis en formation depuis le 25 main 2024 🚀 Ici, vous trouverez les projets sur lesquels j'ai travaillé avec envie, précision et créativité. 🧑‍💻
+Je suis en formation depuis le 25 mai 2024 🚀 Ici, vous trouverez les projets sur lesquels j'ai travaillé avec envie, précision et créativité. 🧑‍💻
 
 👀 Gardez un œil, car j'ajouterai plus de projets au fil du temps !
 
