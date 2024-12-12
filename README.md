@@ -1,3 +1,5 @@
+FR Ver.
+
 👋 Salut à tous !
 
 Je suis en formation depuis le 25 mai 2024 au Campus Numérique 🚀 Ici, vous trouverez les projets sur lesquels j'ai travaillé avec précision et créativité. 🧑‍💻
@@ -38,6 +40,11 @@ Voici les principaux langages et frameworks que j'ai appris :
 
 Restez à l'écoute ! 😊
 
+
+
+
+
+EN Ver.
 
 👋 Hi everyone!
 
